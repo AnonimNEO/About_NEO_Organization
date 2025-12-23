@@ -1,4 +1,4 @@
 - 👋 Всем **Доброго** Времени Суток!
 - 👀 **Я AnonimNEO** и **создатель NEO Organization**
 - 📫 связтся с нами можно по почте : **operawifi.mini.net.win.2000@gmail.com** или же по Телеграмму [https://t.me/@AnonimNEO](https://t.me/AnonimNEO)
-- 🎦 Наш YouTube - [https://www.youtube.com/channel/UCZvOEU_IDRsfK5j-JoNAVWg]
+- 🎦 Наш YouTube - [канал](https://www.youtube.com/channel/UCZvOEU_IDRsfK5j-JoNAVWg)
